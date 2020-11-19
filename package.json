@@ -1,8 +1,8 @@
 {
-  "name": "dabeiseinistalles-www",
+  "name": "aus-dem-bauch-heraus",
   "version": "1.0.0",
   "description": "Victor Hugo is a Hugo boilerplate for creating truly epic websites!",
-  "repository": "netlify/victor-hugo",
+  "repository": "teggno/aus-dem-bauch-heraus",
   "main": "index.js",
   "scripts": {
     "lint": "eslint src",

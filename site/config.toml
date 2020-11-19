@@ -1,12 +1,12 @@
 baseurl = "/"
 languageCode = "de-ch"
 languageLang = "de"
-title = "Dabeisein ist alles"
+title = "Aus dem Bauch heraus"
 
 # RSS, categories and tags disabled for an easy start
 # See configuration options for more details: 
 # https://gohugo.io/getting-started/configuration/#toml-configuration
 disableKinds = ["RSS", "taxonomy", "taxonomyTerm"]
 
-googleAnalytics = "UA-75965774-2"
+googleAnalytics = "G-GXV6W79DKP"
 summaryLength = 20

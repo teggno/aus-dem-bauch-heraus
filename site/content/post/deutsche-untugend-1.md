@@ -1,6 +1,6 @@
 ---
 title: "Deutsche Untugend "
-draft: false
+draft: true
 date: 2020-11-20T10:50:30.021Z
 image: img/54a4c6de-e395-49ae-9e29-b315540daf20.jpeg
 ---

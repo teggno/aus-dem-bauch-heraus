@@ -1,0 +1,6 @@
+---
+title: "Deutsche Untugend "
+draft: true
+date: 2020-11-20T07:58:24.195Z
+---
+Auf dem Zenit aufzuhören ist eine Kunst. Nur wenige beherrschen sie. Die Grössten, nicht nur auf diesem Gebiet, waren die Beatles. 10 Jahre immer zuoberst und dann „Goodbye“. Auch er hätte diesen Weg gehen können, Weltmeister-Trainer Jogi Löw. Mit Kalkül und Raffinesse und vielen Leistungsträgern hatte er 2014 seine Truppe aufs oberste Podest gehievt. Statt in der Stunde des Glücks die Schlüssel abzugeben, wollte er weiterhin Geschichte schreiben. Eine stetige Verjüngung seines Teams schwebte ihm vor. 2016 noch einigermassen bei den Leuten, folgte 2018 die eiskalte Dusche. Und von da an ging’s nur noch bergab. Zu frühe „Kaltstellung“ seiner ehemaligen Gefolgsleute, Fehleinschätzungen bei der Auswahl ihrer Nachfolger und verlorene Autorität liessen die Deutschen in eine noch nie dagewesene Blamage rutschen. 0:6 gegen absolut normale Spanier. Die verfälschte EM 2020 steht vor der Tür. Die Gruppe F lässt nichts Gutes erahnen. Und Löw hat keine Visionen.... und dazu nur durchschnittliches „Material“.

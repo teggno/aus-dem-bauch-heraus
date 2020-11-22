@@ -1,6 +1,6 @@
 ---
 title: Il Maestro
-draft: true
+draft: false
 date: 2020-11-22T08:51:25.926Z
 image: img/c39d720c-406b-4a88-9f3b-87d591c2c797.jpeg
 ---

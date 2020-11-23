@@ -1,0 +1,6 @@
+---
+title: "Real(e) Versäumnisse "
+draft: true
+date: 2020-11-23T09:01:03.688Z
+---
+Im Leben zeichnen sich viele Dinge schon lange vorher ab. Warum soll es im Fussball anders sein. Wer die Geschichte der Königlichen am Rande mitverfolgt hat, weiss Bescheid. Wie meistens, wenn der Himmel voller Geigen hängt, wird der Moment in vollen Zügen ausgekostet. Die Weichenstellung erfolgt dann meistens zu spät. Real hätte Zeit gehabt, der Realität ins Auge zu schauen. Die Nähe zu verdienten (Ex)Leistungsträger, hat den Umbau erschwert. Marcelo, Kroos, und Modric sind nicht mehr die „Alten“. Mit Hazard und Jovic hat man in die falsche Schüssel gelangt. Asensio und Vazquez haben sich aus der „Ewigen Talente-Liste“ nicht herausgespielt und der „Ausserirdische“ wurde nicht mal annähernd ersetzt. Quintessenz der Geschicht: Real ist mit einem Bein aus der Königsklasse raus. Spanien‘s Nati ist wieder im Aufwind. Barcelona und Real stehen am Scheideweg. Atlético könnte profitieren. Luis Suarez hätte nichts dagege.

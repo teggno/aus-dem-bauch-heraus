@@ -1,7 +1,7 @@
 ---
 title: Ibrakadabra
 draft: false
-date: 2020-11-23T07:19:02.283Z
+date: 2020-11-23T07:21:16.950Z
 image: img/92c75a5c-a4a6-42f7-9cc4-d42dadd2c1db.webp
 ---
 O Kinderlein kommet - o kommet doch all! Wenn “Papa“ seine Familie zum Jubeln zusammentrommelt, dann liegen sich alle in den Armen. Als ob sie sagen wollten, danke Vater, dass du uns etwas zu essen mitgebracht hast. Seine (Aus)Beute darf sich sehen lassen. Mit fast 40 Lenzen auf dem Buckel zeigt der Schwede seinen Kritikern „wo dä Bartli dä Moscht holt.“ Als Opa, der noch einmal Kasse machen will, hatten sie ihn belächelt. Nach 8 Spielen und 10 „Ibra Toren“ müssen sie kleinlaut über die Bücher. Auch die Konkurrenz zollt dem Arrogantesten aller Zeitgenossen Respekt. Selbst der „Ausserirdische“ aus Turin kann das Tempo nicht mithalten.

@@ -1,6 +1,6 @@
 ---
 title: Männer-Bastionen
-draft: true
+draft: false
 date: 2020-11-24T08:08:22.818Z
 image: img/0a0dce0f-a6a9-4d0c-9462-891d0de0615b.jpeg
 ---

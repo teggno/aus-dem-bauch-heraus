@@ -1,5 +1,5 @@
 ---
-title: Gestohlene...
+title: Letzte Bastionen
 draft: true
 date: 2020-11-24T08:08:22.818Z
 ---

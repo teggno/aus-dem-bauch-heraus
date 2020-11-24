@@ -7,4 +7,4 @@ Champagner kaltgestellt ,Antipasti-Teller angerichtet, die Kuschelrock-CD aufgel
 
 Was wir uns nicht einmal in den schlimmsten Träumen erträumt hätten, ist eingetreten. Gähnende Leere. Nicht nur am fein gedeckten Tisch, sondern in den vielen Stadien dieser Welt. Wenn in wenigen Minuten die CL- Hymne durch die Lautsprecher klingt, werden wir sie vermissen, wie schon so oft in letzter Zeit. Die Choreografien, das Fahnenmeer, die Buhrufe und das Torgeschrei. Stattdessen sind wir „mittendrin statt nur dabei“ bei  fäkalen Flüchen, unflätigen Schiedsrichter-Beleidigungen, zahllosen Traineranweisungen und wehleidigen „Aua“.
 
-Kurz vor 11. Ein Horror-Abend geht zu Ende. Wenn man uns Männern die letzten Bastionen Illusionen stiehlt, sind wir wie Kinder, die einfach nicht begreifen wollen....dass ihr §pielzeug verlorengegangen ist.
+Kurz vor 11. Ein Horror-Abend geht zu Ende. Wenn uns Männern die letzten Bastionen und Illusionen verlorengehn, sind wir wie Kinder, die einfach nicht begreifen wollen, dass ihr Spielzeug kaputtgergangen ist.

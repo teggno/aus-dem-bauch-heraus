@@ -2,6 +2,7 @@
 title: Letzte Bastionen
 draft: true
 date: 2020-11-24T08:08:22.818Z
+image: img/0a0dce0f-a6a9-4d0c-9462-891d0de0615b.jpeg
 ---
 Champagner kaltgestellt ,Antipasti-Teller angerichtet, die Kuschelrock-CD aufgelegt, das Kerzenlicht angezündet und sonst alle nötigen Vorkehrungen getroffen. Soviel Mühe hat ER sich schon lange nicht mehr gegeben. SIE wird ihm im schlechtesten Fall um den Hals fallen, wenn er die Türe aufmacht.....aber lassen wir das. Je mehr es gegen 9 geht, desto flauer wird das Gefühl in seiner Magengegend. Der „Star“ des Abends, wird doch nicht etwa mit Abwesenheit glänzen.
 

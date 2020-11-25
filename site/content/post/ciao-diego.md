@@ -1,6 +1,6 @@
 ---
 title: Ciao Diego
-draft: true
+draft: false
 date: 2020-11-25T17:06:28.874Z
 image: img/4df731da-8719-481c-a429-3fcf69047ad7.jpeg
 ---

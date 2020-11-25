@@ -1,0 +1,7 @@
+---
+title: Ciao Diego
+draft: true
+date: 2020-11-25T17:06:28.874Z
+image: img/4df731da-8719-481c-a429-3fcf69047ad7.jpeg
+---
+Jedesmal wenn die Fachjury ihre „Best of“ veröffentlichte, thronte er von zuoberst. Grössen wie Pélé, Crujff, Beckenbauer und Messi liess er regelmässig hinter sich. Er war ein Genie, einer der wenigen, die den Status „Weltklasse“ verdienen. Fast im Alleingang schoss er 1986 sein Argentinien in den siebten Himmel. Dass ihm dabei die „Hand Gottes“ zu Hilfe kam, war für ihn fast selbstverständlich. Er hat die Szene stets mit einem Augenzwinkern kommentiert. Im zarten Alter von 15 debütierte das spätere „Enfant Terrible“ mit dem Tenue der „Argentino Juniors“  in der argentinischen Primera Divisio, ehe er zu seiner Herzensangelegenheit „Boca Juniors“ wechselte. Als der FC Barcelona eine für damalige Verhältnisse unmoralische Summe auf den Tisch legte, war der Weg nach Europa frei. Den Status des „Pike d‘oro“  erlangte der Ballvirtuose allerdings erst beim FC Neapel. Die Menschen vom Vesuv haben ihren Diego,stets vergöttert. Der letzte Meistertitel der mittlerweile 36 Jahre zurückliegt, trägt ohne seinen Mitspielern unrecht zu tun, die Handschrift des “Goldjungen“. Bis heute hat die legendäre Nr.10 in den Katakomben des San Paolo Stadion ihren Sonderplatz. Sie wurde bei Maradonas Abschied im Jahre für immer aus dem Verkehr gezogen. Heute am 25. November 2020 ist Diego Armando Maradona im Alter von 60 Jahren gestorben. Die Fussballwelt wird ihn als „Enfant Terrible“, der mit der Kugel jedes Kunst

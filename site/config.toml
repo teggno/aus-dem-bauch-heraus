@@ -1,4 +1,4 @@
-baseurl = "/"
+baseurl = "https://ausdembauchheraus.netlify.app"
 languageCode = "de-ch"
 languageLang = "de"
 title = "Aus dem Bauch heraus"

@@ -4,7 +4,7 @@ draft: true
 date: 2020-11-28T08:14:43.140Z
 image: img/3d92df95-3faf-4260-b4c8-ec3b66575f29.jpeg
 ---
-„Auf Wiedersehen im Himmel mein Freund, irgendwann spielen wir dort oben unsere Gegner schwindlig.“ Pelé‘s Abschiedsgruss an Diego hat etwas Beruhigendes. Die Aussicht auf ein Leben nach dem Tod ist Balsam für meine Seele. Mittlerweile hat sich im Garten Eden eine Ansammlung ausserirdischer Fussballkunst eingefunden, die es mit der „Irdischen“ jederzeit aufnehmen kann. Während einer Gedenkminute wollen wir ihren Einfallsreichtum würdigen.
+„Auf Wiedersehen im Himmel mein Freund, irgendwann spielen wir dort oben unsere Gegner schwindlig.“ Pelé‘s Abschiedsgruss an Maradona  hat etwas Beruhigendes. Die Aussicht auf ein Leben nach dem Tod ist Balsam für meine Seele. Mittlerweile hat sich im Garten Eden eine Ansammlung ausserirdischer Fussballkunst eingefunden, die es mit der „Irdischen“ jederzeit aufnehmen kann. Während einer Gedenkminute wollen wir ihren Einfallsreichtum würdigen.
 
 Sie werfen sich im Training die Bälle zu und scherzen in der Fussballersprache. „Panther“ Lew Jaschin und „Ruhepol“ Gordon Banks. Die Hüter alter Traditionen wissen was sich gehört. Schwarz wie die Nacht sind ihre Tricots mit der Nr. 1 auf dem Rücken. Wer den beiden „6ern“ beim Warmmachen zuschaut, weiss, dass hier zwei Liberos aus altem Schrot und Korn am Werk sind, die viel zu früh gegangen sind. Bobby Moore und Gaetano Scirea. Gleiches gilt für Wim Suurbier und Giacinto Facchetti, die zwei „Lungen“, die an der  Aussenlinie zehntausende von Kilometern abgespult haben. 
 

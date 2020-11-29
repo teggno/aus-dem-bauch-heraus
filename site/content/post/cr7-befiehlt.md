@@ -1,6 +1,6 @@
 ---
 title: "Primadonna "
-draft: true
+draft: false
 date: 2020-11-29T06:19:33.868Z
 ---
 Juve’s Erfolge hängen (leider) zu oft von Ronaldo ab, weil zuviele „Ausfälle“ im Team stehen. Danilo, Rabiot, Ramsey, Arthur, Bernardeschi und „Zirkusartist“ Dybala dürften „unser“ Tricot niemals tragen. Für diese Fehleinkäufe trägt CR7 allerdings keine Schuld. Dass Ronaldo es jedoch nicht nötig hat, zum wichtigen Meisterschaftsspiel nach Benevento zu reisen, ist inakzeptabel. Ibrahimovic, der 3 Jahre älter ist, hat die Zeichen der Zeit erkannt und besteht darauf, jedes Spiel zu absolvieren. Wenn sich Ronaldo schonen möchte, damit er das unbedeutende Champions League gegen Kiew bestre kann, muss der Verein intervenieren. Zumal Juve die Qualifikation für das Achtelfinale bereits in der Tasche hat. Wenn Portugal ruft, spielt er sogar die Freundschaftsspiele gegen Andorra. Solche Dinge passieren, wenn nicht der Verein sondern ein Spieler das Sagen hat. Nach 2 Jahren „Ronaldo-Diktatur„ darf man getrost eine Zwischenbilanz ziehen. Aufwand (350 Millionen) und Ertrag (CL-Desaster). Schliesslich hat man ihn deswegen nach Turin geholt. Für die „scudetti“ allein ist er ein Luxus.  7 von 9 Meisterschaften haben „wir“ übrigens auch ohne ihn geholt. Die grössten „Idioten“ in dieser Schmierenkoödie sind jedoch wir Fans, die diesen verwöhnten “Superstars“ beim nächsten Tor wieder um den Hals fallen.

@@ -1,7 +1,8 @@
 ---
-title: "Nivellierung "
+title: "Ausgeglichenheit "
 draft: true
 date: 2020-11-29T10:11:56.664Z
+image: img/d348e361-51e2-4ea6-b14f-a49551255ebe.jpeg
 ---
 Nie war es so einfach Meister zu werden. Dieser Eindruck entsteht, wenn man einen Blick auf die Tabellenstände wirft. Durchmarschiert wird nirgends. Das Feld beschnuppert sich, keinem wird nur der kleinste Ausreissversuch gestattet. Ausser Milan. Die lässt man kurzzeitig ziehen. In der Hoffnung, dass ihnen die Puste ausgeht. Wenn das nur kein Bumerang wird.
 

@@ -10,9 +10,7 @@ Hakt die Titelverteidigung ab und konzentriert euch voll auf Platz 4! Viele werd
 
 Die Erzfeinde haben Blut geleckt. Vorbei die Zeiten, als die Gegner unsere Ausrutscher nicht ausgenützt haben. Nach neun „unterirdischen“ Auftritten ist der Rückstand auf „Ibras“ AC Milan auf sechs Punkte angewachsen. Das unausgeglichenste Juve-Team der letzten Jahre quält sich durch die Pandemie. Ohne Biss, Esprit und Identität. 
 
-Die einzigen im Team verbliebenen  „Ferrari“  sind  „Youngster“ de Ligt und “Sympathiebolzen“ Ronaldo. Zu wenig um die Dominanz der vergangenen Jahre aufrechtzuerhalten. Und die Problemfälle häufen sich.
-
-Angefangen bei den beiden „Verletzungs-Weltmeistern“ Ramsey und Chiellini, über höchst mittelmässige Aussenbacks, bis hin zu Mittelfeld-Strategen ohne Phantasie und “Perlen“ wie Bernardeschi und Dybala, die nichts mehr wert sind.
+Die einzigen im Team verbliebenen  „Ferrari“  sind  „Youngster“ de Ligt und “Sympathiebolzen“ Ronaldo. Zu wenig um die Dominanz der vergangenen Jahre aufrechtzuerhalten. Und die Problemfälle häufen sich. Angefangen bei den beiden „Verletzungs-Weltmeistern“ Ramsey und Chiellini, über höchst mittelmässige Aussenbacks, bis hin zu Mittelfeld-Strategen ohne Phantasie und “Perlen“ wie Bernardeschi und Dybala, die nichts mehr wert sind.
 
 „Maestro“, du bist nicht zu beneiden. Wenn alle Stricke reissen sollten und du nicht mehr das Licht am Ende des Tunnels siehst, hier noch ein „Geheimtipp ohne Gewähr“ wie du die Truppe aufstellen könntest. Vielleicht werden mit diesem „3-4-3-Meraviglia“ Träume doch noch wahr.
 

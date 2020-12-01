@@ -14,4 +14,4 @@ Die einzigen im Team verbliebenen  „Ferrari“  sind  „Youngster“ de Ligt 
 
 „Maestro“, du bist nicht zu beneiden. Wenn alle Stricke reissen sollten und du nicht mehr das Licht am Ende des Tunnels siehst, hier noch ein „Geheimtipp in eigener Sache“, wie du mit der Truppe durch die eisige Wintersaison kommst. Vielleicht werden mit diesem „3-4-3-Meraviglia“ Meisterschafts-Träume etc. doch noch wahr.
 
-Szczesny; Chiellini-de Ligt-Demiral; Cuadrado-Mc Kennie-Bentancourt-Kulusewski; Chiesa-Morata-Ronaldo
+Szczesny; Chiellini-de Ligt-Demiral; Cuadrado-Pogba🤫-Bentancourt-Kulusewski; Chiesa-Morata-Ronaldo

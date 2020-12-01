@@ -14,4 +14,4 @@ Und die Problemfälle häufen sich. Angefangen bei den „Verletzungs-Weltmeiste
 
 „Maestro“, du bist nicht zu beneiden. Wenn alle Stricke reissen sollten und du nicht mehr das Licht am Ende des Tunnels siehst, hier noch ein „Geheimtipp in eigener Sache“, wie du mit der Truppe durch die eisige Wintersaison kommst. Vielleicht werden mit diesem „3-4-3-Meraviglia“ Meisterschafts-Träume etc. doch noch wahr.
 
-Szczesny; Demiral-de Ligt-Chiellini; Cuadrado-Pogba🤫-Bentancourt-Kulusewski; Chiesa-Morata-Ronaldo
+Szczesny; Demiral-de Ligt-Alaba🤫; Cuadrado-Bentancourt-Pogba🤫-Kulusewski; Chiesa-Morata-Ronaldo

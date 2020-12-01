@@ -12,6 +12,6 @@ Die Erzfeinde haben Blut geleckt. Vorbei die Zeiten, als die Gegner unsere Ausru
 
 Die einzigen im Team verbliebenen  „Ferrari“  sind  „Youngster“ de Ligt und “Sympathiebolzen“ Ronaldo. Zu wenig um die Dominanz der vergangenen Jahre aufrechtzuerhalten. Und die Problemfälle häufen sich. Angefangen bei den beiden „Verletzungs-Weltmeistern“ Ramsey und Chiellini, über höchst mittelmässige Aussenbacks, bis hin zu Mittelfeld-Strategen ohne Phantasie und “Perlen“ wie Bernardeschi und Dybala, die nichts mehr wert sind.
 
-„Maestro“, du bist nicht zu beneiden. Wenn alle Stricke reissen sollten und du nicht mehr das Licht am Ende des Tunnels siehst, hier noch ein „Geheimtipp ohne Gewähr“ wie du die Truppe aufstellen könntest. Vielleicht werden mit diesem „3-4-3-Meraviglia“ Träume doch noch wahr.
+„Maestro“, du bist nicht zu beneiden. Wenn alle Stricke reissen sollten und du nicht mehr das Licht am Ende des Tunnels siehst, hier noch ein „Geheimtipp ohne Gewähr“ wie du mit der Truppe durch die Wintersaison kommst. Vielleicht werden mit diesem „3-4-3-Meraviglia“ Träume doch noch wahr.
 
 Szczesny; Chiellini-de Ligt-Demiral; Cuadrado-Mc Kennie-Bentancourt-Kulusewski; Chiesa-Morata-Ronaldo

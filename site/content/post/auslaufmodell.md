@@ -1,6 +1,6 @@
 ---
 title: Auslaufmodell
-draft: true
+draft: false
 date: 2020-12-01T09:00:26.857Z
 image: img/245ea428-2590-48bc-86cc-6eb03b4004b9.jpeg
 ---

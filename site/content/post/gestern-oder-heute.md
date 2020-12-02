@@ -1,8 +1,8 @@
 ---
-title: Gestern oder heute....
+title: Musica è......
 draft: true
-date: 2020-11-22T13:04:54.726Z
+date: 2020-12-02T09:26:20.085Z
 ---
-Oder anders gefragt „Yesterday“ oder „Jerusalema“.  Noch komplizierter wird es bei der Frage: „Beatles“ oder “Master KG feat. Burna Boy & Nomcebo Zikode“. Wenn mir die Haare nicht schon vorher zu Berge gestanden wären, wäre jetzt der Zeitpunkt dafür. Ich fühle mich in Zeiten zurückversetzt als ich von „Peter Alexander“ und „Lisa della Casa„ nichts hören wollte. Waren es damals meine Eltern, bin ich heut der „Ewiggestrige“, der sich beim besten Willen nicht vorstellen kann, dass ein solches „Pseudonym“ eine Melodie aus den Boxen zaubern kann. 
+Wenn ich nicht mehr weiter weiss und sich die graue Nebeldecke partout nicht lichten will, ist ein Ausflug in die Welt der Phantasie das beste Mittel.  Oder anders gefragt „Yesterday“ oder „Jerusalema“.  Noch komplizierter wird es bei der Frage: „Beatles“ oder “Master KG feat. Burna Boy & Nomcebo Zikode“. Wenn mir die Haare nicht schon vorher zu Berge gestanden wären, wäre jetzt der Zeitpunkt dafür. Ich fühle mich in Zeiten zurückversetzt als ich von „Peter Alexander“ und „Lisa della Casa„ nichts hören wollte. Waren es damals meine Eltern, bin ich heut der „Ewiggestrige“, der sich beim besten Willen nicht vorstellen kann, dass ein solches „Pseudonym“ eine Melodie aus den Boxen zaubern kann. 
 
 Womit wir wieder beim Thema sind. Wahrscheinlich sind sie sich deswegen schon im „Mittelalter“ in die Haare geraten. „Mozart oder Beethoven„ „Gershwin oder Chopin“. Wobei ich festhalten will, dass es sich hier um Musik handelt, auch wenn ich die „Klassische“ gar nicht mag. Viel aut ging es in den Sechzigern zu, als unsere Eltern jede „Neuerfindung“ ins Reich der „Spinner“ beförderten. Lange Haare waren „grusig“, laute Musik....und ein Tète à Tète auf der Parkbank eine „Sauerei“. Von Drogen und anderen Exzessen gar nicht zu reden. Wer sich zu Peter Alexander und Lisa della Casa nicht hingezogen fühlte, hatte keine Ahnung. Und wer sich im Kino „Easy Rider und Schulmädche-Report „hineinzog“ war ein Fall für die Sittenpolizei.

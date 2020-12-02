@@ -1,7 +1,7 @@
 ---
 title: "Problemfälle "
-draft: true
-date: 2020-11-30T15:13:26.539Z
+draft: false
+date: 2020-12-02T08:33:21.239Z
 image: img/8551f09c-7208-4851-9ef4-4b934c2526ac.jpeg
 ---
 Liebe Juventini,

@@ -10,6 +10,6 @@ Hakt die Titelverteidigung ab und konzentriert euch voll auf Platz 4! Viele werd
 
 Und die Problemfälle häufen sich. Angefangen bei den „Verletzungs-Weltmeistern“ Ramsey und Chiellini, die zum Wohle des Vereins die Schuhe an den Nagel hängen sollten, über die höchst mittelmässigen „Aussenbacks“ um Danilo, bis hin zu Mittelfeld-Strategen ohne Phantasie wie Arthur und Rabiot. Im Sortiment auch vertreten, „Perlen“, die ihren Wert halbiert haben, wie Bernardeschi und Dybala.
 
-„Maestro“, du bist nicht zu beneiden. Wenn alle Stricke reissen sollten und du nicht mehr das Licht am Ende des Tunnels siehst, hier noch ein „Geheimtipp in eigener Sache“, wie du mit der Truppe durch die eisige Wintersaison kommst. Vielleicht werden mit diesem „4-3-3-Meraviglia“ Meisterschafts-Träume etc. doch noch wahr.
+„Maestro“, du bist nicht zu beneiden. Wenn alle Stricke reissen sollten und du nicht mehr das Licht am Ende des Tunnels siehst, hier noch ein „Geheimtipp in eigener Sache“, wie du mit der Truppe durch die frostige Wintersaison kommst. Vielleicht werden mit diesem „4-3-3-Meraviglia“ Meisterschafts-Träume etc. doch noch wahr.
 
 Szczesny; Cuadrado-de Ligt-Demiral-Alaba🤫; Bentancourt-Pogba🤫-Kulusewski; Chiesa-Morata-Ronaldo

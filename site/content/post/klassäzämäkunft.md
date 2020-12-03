@@ -8,7 +8,7 @@ Vom Teenager zum Pensionär. Von der Schulbank auf die „Reservebank“. Dazwis
 
 Als ich kürzlich zu einem meiner obligaten Spaziergänge aufbrach, kam mir auf Höhe Heiden die goldige Idee. Und siehe da, das Ferienhaus der Schulgemeinde Kreuzlingen oben am Fünfländerblick im kleinen Dörfchen Grub stand noch immer  da. Alles wie gehabt, fein säuberlich aufgeräumt und angeschrieben. Wie haben wir sie damals durcheinander gewirbelt, die Mädchen- und die Bubenzimmer. Dabei waren wir erst knapp 12 und sind „no dä Musig hinädri gloffä“. Bis auf die zwei drei „Frühreifen“, die alle anderen in die Geheimnisse des Lebens einweihen wollten.
 
-Die Ferien im „Füfländerblick“ waren für unsere Eltern eine willkommene Gelegenheit uns Kinder für 14 Tage loszuwerden. Bei mir zuhause lief das immer nach Schema „f“. Einmal gings nach Rimini und im nächsten Jahr ins Lager. Einige hielten es nicht mal 3 Tage dort aus, das Heimweh war zu gross. Ich gehörte nicht zu ihnen.
+Die Ferien im „Füfländerblick“ waren für unsere Eltern eine willkommene Gelegenheit uns Kinder für 14 Tage loszuwerden. Bei mir zuhause lief das immer nach Schema „f“. Einmal gings nach Rimini und im nächsten Jahr ins Lager. Für ein paar wenige war das Heimweh so gross, dass sie nach kurzer Zeit tränenüberströmt “Mammi und Papi“ um Abholung baten. Ich gehörte zum Glück nicht zu ihnen.
 
 Ums Haus, das schräg in den Hang gebaut war, gab es alles, was ein Bubenherz begehrt. Mich interessierte nur der Fussballplatz. Die schönsten Momente waren die, als ich zufällig mal 🙈 🤫 ein Tor geschossen hatte und draussen am Spielfeldrand meine „Gespielin„ schüchtern meine Blicke erwiderte. Damals war man eben noch mit wenig zufrieden.
 

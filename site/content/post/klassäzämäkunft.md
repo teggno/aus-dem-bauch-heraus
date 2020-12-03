@@ -16,4 +16,4 @@ Wäre nicht hier oben zwischen Kuhglocken und phantastischer Aussicht auf Bergen
 
 Nach viel zu kurzen Pausen schrieben wir dann Diktate, büffelten „Mathe“ und lernten Gedichte auswendig. Einmal im Jahr durften wir den Rucksack für die Schulreise packen. Die Pfahlbauten von Unteruhldingen bleiben ein unvergessener Meilenstein. Und das Skilager in Dieni natürlich auch. „Haarezupfen an der Schläfe“, happige Strafaufgaben und „diä obligatä Chopfnüss“ gehörten zu unserem Berufsalltag. Stets mittendrin im Geschehen unser „Sigi“, der im Januar im Alter von 95 Jahren gestorben ist.
 
-Einige von uns sind leider viel zu früh gegangen. Hanspeter, Daniela, Margrit und zwei von unseren drei Brunos.
+Raffi, gib dir einen Ruck. Fädle die Geschichte ein. Wie vor 20 Jahren. Sonst macht es eh keiner 🤫. Die Adressen hast du ja noch alle. Leider sind einige von uns viel zu früh gegangen. Hanspeter, Daniela, Margrit und zwei von unseren drei Brunos.Das Leben ist ungerecht.

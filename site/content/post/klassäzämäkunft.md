@@ -4,7 +4,7 @@ draft: false
 date: 2020-12-03T09:30:42.652Z
 image: img/14cf08f0-8e7e-494f-ac6e-1b22b66432fc.jpeg
 ---
-Vom Teenager zum Pensionär. Von der Schulbank auf die „Reservebank“. Dazwischen liegen mehr als 50 Jahre. Zeit sich wieder einmal um den Hals zu fallen. Virtuell vielleicht, wie es sich heutzutage gehört. Zum „Schliichär“ 💃🏽🕺🏾 im Pfarreikeller wird es leider nicht mehr reichen. Zeljko und Roger machen mir jetzt schon Vorwürfe.
+Vom Teenager zum Pensionär. Von der Schulbank auf die „Reservebank“. Dazwischen liegen mehr als 50 Jahre. Zeit sich wieder einmal um den Hals zu fallen. Virtuell vielleicht, wie es sich heutzutage gehört. Zum „Schliichär“ 💃🏽🕺🏾 im Pfarreikeller wird es wohl nicht mehr reichen. Zeljko und Roger machen mir jetzt schon Vorwürfe.
 
 Als ich kürzlich zu einem meiner obligaten „Spaziergänge“ aufgebrochen bin, kam mir auf Höhe Heiden die goldige Idee. Und siehe da, das Ferienhaus der Schulgemeinde Kreuzlingen oben am Fünfländerblick im kleinen Dörfchen Grub stand noch immer  da. Alles wie gehabt, fein säuberlich aufgeräumt und „angeschrieben“. Wie haben wir sie damals durcheinandergewirbelt, die Mädchen- und die Bubenzimmer. „Däbi simmär ersch knapp zwölfi gsii und sind no dä Musig hinädri gloffä“. Bis auf die zwei drei „Frühreifen“, die alle anderen in die Geheimnisse des Lebens einweihen wollten.
 

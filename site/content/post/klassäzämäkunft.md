@@ -1,6 +1,6 @@
 ---
 title: Klassäzämäkunft
-draft: true
+draft: false
 date: 2020-12-03T09:30:42.652Z
 image: img/14cf08f0-8e7e-494f-ac6e-1b22b66432fc.jpeg
 ---

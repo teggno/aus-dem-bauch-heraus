@@ -1,7 +1,7 @@
 ---
 title: Klassäzämäkunft
 draft: true
-date: 2020-12-02T14:47:06.142Z
+date: 2020-12-03T09:30:42.652Z
 image: img/14cf08f0-8e7e-494f-ac6e-1b22b66432fc.jpeg
 ---
 Vom Teenager zum Pensionär. Von der Schulbank auf die „Reservebank“. Dazwischen liegen mehr als 50 Jahre. Zeit sich wieder einmal um den Hals zu fallen. Virtuell vielleicht, wie es sich heutzutage gehört. Zum „Schliichär“ 💃🏽🕺🏾 im Pfarreikeller wird es leider nicht mehr reichen. Zeljko und Roger machen mir jetzt schon Vorwürfe.

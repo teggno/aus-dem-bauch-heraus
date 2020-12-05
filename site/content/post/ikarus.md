@@ -8,4 +8,4 @@ Es riecht nach „verbrannt“. Viele werden den Vorfall vom Sommer  noch in bes
 
 Nicht schon wieder, ist der erste Gedanke, der einem durch den Kopf geht. Viel zu frisch sind die Bilder von 2006, als das Führungs-Trio „Moggi-Giraudo-Bettega“ vor laufender Kamera vom damaligen Juve-Präsidenten freigestellt wurde. Moggi und Giraudo wurden anschliessend vom Sportgericht auf Lebzeiten ausradiert und Juve ging den schweren Gang in die Serie B. 
 
-Bleibt die Hoffnung, dass „Emporkömmling„ Paratici, dem seit Marottas Abgang zu Inter die „Vaterfigur“ fehlt, die Finger nicht zu sehr in der „Marmelade“ hat. Sonst könnte es für Juve eng werden. Eine Geldstrafe bis hin zu Punkteabzügen und nochmaliger Relegation, alles ist möglich.
+Bleibt die Hoffnung, dass „Emporkömmling„ Paratici, dem seit Marottas Abgang zu Inter die „Vaterfigur“ fehlt, die Finger nicht zu sehr in der „Marmelade“ hat. Sonst könnte es für ihn und Juve eng werden. Im Raum stehen Berufsverbot, Geldstrafen bis hin zu Punkteabzügen und nochmaliger Relegation.

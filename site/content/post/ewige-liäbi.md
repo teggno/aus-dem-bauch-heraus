@@ -1,6 +1,6 @@
 ---
 title: Tschinggeli
-draft: true
+draft: false
 date: 2020-12-07T17:48:05.336Z
 image: img/70ce9fa2-8f55-4d7c-a643-5a81ebafbaa7.jpeg
 ---

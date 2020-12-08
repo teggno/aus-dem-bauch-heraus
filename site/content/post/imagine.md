@@ -8,4 +8,4 @@ Stell dir vor, was er noch alles drauf gehabt hätte. Wieviele Lieder aus seinem
 
 Stell dir vor, er hätte sein Statement von März 1966, „die Beatles sind bekannter als Jesus“ nie abgegeben. Wie oft sagen wir Dinge, im reiferen Alter vielleicht weniger, die wir 10 Sekunden später bereuen. Diese Aussage hat ihm vielleicht das Leben gekostet. Seinem Mörder zufolge gab sie den Ausschlag für die Tat.
 
-Lennon war „der Beatle“❗️Kreativ, rebellisch, wortgewandt, authentisch. Seine Stimme gab den Kompositionen das gewisse Etwas. Stell dir vor, er wäre noch unter uns und Harrison natürlich auch.
+Lennon war „der Beatle“❗️Kreativ, rebellisch, wortgewandt, authentisch. Seine Stimme gab den Kompositionen das gewisse Etwas. Stell dir vor, er wäre noch unter uns und Harrison natürlich auch. In diesen trüben Tagen mit wenig Perspektive würde ein „Ohrwurm“ aus der Feder der „Grössten“ die Charts mächtig durcheinanderwirbeln. Allzuviel „Esprit“ bräuchte es nicht.

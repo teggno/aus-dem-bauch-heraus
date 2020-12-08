@@ -2,7 +2,7 @@
 title: Imagine
 draft: false
 date: 2020-12-08T07:37:45.538Z
-image: img/4a7ba47b-2c78-4b60-a90f-70f85477c1e1.jpeg
+image: img/a6b9ae1e-f0a2-4851-8ea8-52ba5ea41a05.jpeg
 ---
 Stell dir vor, was er noch alles drauf gehabt hätte. Wieviele Lieder aus seinem unerschöpflichen „Fundus“ noch entstanden wären. „Imagine“ war sein Markenzeichen als Einzelkomponist. All die Welthits mit den Beatles wollen wir heute in Frieden ruhen lassen, der Platz dafür würde hier nicht reichen. 
 

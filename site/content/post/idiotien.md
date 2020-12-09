@@ -1,9 +1,9 @@
 ---
-title: Idiotie
+title: "Surreal "
 draft: true
 date: 2020-12-09T11:47:00.000Z
 image: img/2c39b17b-259f-4a47-b12b-0abd7f28269c.jpeg
 ---
-Die erste erreicht uns aus Paris. Man kann es auch übertreiben mit dieser Rassismus-Geschichte. Kaum sagst du ein falsches Wort, wirst du an den Pranger gestellt. Wer nicht differenzieren kann zwischen „bös gemeint“ und „ohne böse Absicht dahergesagt“, ist selber Schuld. Diese Moralapostel gehen mir auf den Geist. Wenn man im Laden beim Bestellen eines „Mohrenkopfs“ ein schlechtes Gewissen haben muss, dann leiden manche Zeitgenossen unter „Verfolgungswahn“. Die UEFA sollte ein Zeichen setzen. Wegen Unverhältnismässigkeit wird das Spiel zwischen Paris St. Germain und Basaksehir nicht etwa neu angesetzt, sondern für beide Teams mit 0 Punkten gewertet.
+
 
 Der zweite „Blödsinn“ kommt aus Bergamo. Mittlerweile pfeifen es die Spatzen von den Dächern; Atalanta ist die sympathischste Mannschaft Italien‘s! Und was noch schöner ist, sie bringt den „Grossen“ das Fürchten bei. Zumindest bis gestern. Dass Menschen ihre Eitelkeiten befriedigen wollen, weiss jeder von uns. Besonders auf dem Rasen passieren manchmal die unglaublichsten Geschichten. Trainer Gasperini und Spielmacher „Papu“ Gomez waren nicht der gleichen Ansicht. Später in der Kabine artete die Diskussion aus. Fäuste sollen geflogen sein. Am Ende gibt es nur Verlierer. Wenn die Bergamasken Glück haben, kommen sie heute Abend gegen Ajax weiter. Das Porzellan ist trotzdem zerschlagen. Was in jahrelanger Sisyphusarbeit aufgebaut wurde, wird in wenigen Augenblicken zerstört. Gasperini bleibt nur der Ausweg über die „Dimission“. Im Team wird es zu Grabenkämpfen kommen und die vielgelobte Harmonie ist dahin. Schade um Atalanta! Ein Märchen ohne Happy End❓

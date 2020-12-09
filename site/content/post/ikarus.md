@@ -2,7 +2,7 @@
 title: In der Bredouille❓
 draft: true
 date: 2020-12-04T17:22:38.147Z
-image: img/3f39c0b9-aad8-4dc2-82e2-6c8006cfde6c.jpeg
+image: img/b3c6fc84-4122-4599-99c4-469acdef0070.jpeg
 ---
 Es riecht nach „verbrannt“. Viele werden den Vorfall vom Sommer  noch in bester Erinnerung haben. „Luis Suarez auf der Suche nach der schnellen italienischen Staatsbürgerschaft“. Dubiose Machenschaften, unter anderem mit dem „Schüler“ abgesprochene Fragen, liessen die Sprach-Universität  in Perugia samt Professoren in ein schiefes Licht geraten. Schien die Sache für die indirekt beteiligte „Alte Dame“ anfangs glimpflich abzulaufen, ist laut Medienberichten von heute Nachmittag Sportdirektor Paratici in die Nummer involviert.
 

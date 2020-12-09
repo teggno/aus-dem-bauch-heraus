@@ -1,6 +1,6 @@
 ---
 title: Masochisten
-draft: false
+draft: true
 date: 2020-12-09T11:47:00.000Z
 image: img/2c39b17b-259f-4a47-b12b-0abd7f28269c.jpeg
 ---

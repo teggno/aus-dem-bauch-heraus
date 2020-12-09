@@ -1,5 +1,5 @@
 ---
-title: Idiotien
+title: Idiotie
 draft: true
 date: 2020-12-08T11:47:00.000Z
 image: img/e0b96ba1-baa3-4553-b930-de425e7d2f92.jpeg

@@ -1,6 +1,6 @@
 ---
 title: Idiotien
-draft: true
+draft: false
 date: 2020-12-09T11:47:00.000Z
 image: img/e0b96ba1-baa3-4553-b930-de425e7d2f92.jpeg
 ---

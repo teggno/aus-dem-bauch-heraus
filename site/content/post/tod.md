@@ -1,5 +1,5 @@
 ---
-title: Tod
+title: Warten auf Godot
 draft: true
 date: 2020-12-10T09:44:03.106Z
 ---

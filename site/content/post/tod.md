@@ -1,7 +1,7 @@
 ---
-title: Warten auf Godot
+title: "Spielereien "
 draft: true
 date: 2020-12-10T09:44:03.106Z
-image: img/4acda212-e5d7-425a-83fe-808be8005a85.jpeg
+image: img/5f90a66e-a930-486e-a8ee-2d9cc39166d3.jpeg
 ---
-Der Tod ist unerbittlich. Er holt uns alle und wir wissen nicht wann. Geburt, Heirat, Pension und alles dazwischen haben wir mehr oder weniger im Griff, doch er stellt uns vor ein unlösbares Problem. Wann schaut er vorbei und was ist nachher.
+Schwelgereien sind im Trend. Die schreibende Fussball-Zunft übertrifft sich in Lobhudeleien. Eine „Best of“ aller Zeiten genügt nicht mehr. Es dürfen auch drei sein. Verständlich, gibt es doch so viele Klassefussballer, dass je nach persönlichem Gusto, nicht dieser sondern jener Star in das beste Team aller Zeiten gehört. Nachdem wir festgestellt haben, dass Objektivität hier fehl am Platz ist, kommen wir auf den Punkt.

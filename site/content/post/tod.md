@@ -1,7 +1,7 @@
 ---
 title: "Spielereien "
 draft: true
-date: 2020-12-10T09:44:03.106Z
+date: 2020-12-16T11:47:55.016Z
 image: img/5f90a66e-a930-486e-a8ee-2d9cc39166d3.jpeg
 ---
 Schwelgereien sind im Trend. Die schreibende Fussball-Zunft übertrifft sich in dieser düsteren Vorweihnachtszeit mit allerlei Lobhudeleien. Eine „Best of“ aller Zeiten genügt scheinbar nicht mehr. Es müssen gleich drei sein. Nicht ganz unverständlich,  gibt es doch so viele Klassefussballer, dass je nach persönlichem Gusto, nicht dieser sondern jener Star in das Team des Jahrhunderts aufrückt. Nachdem wir festgestellt haben, dass Objektivität an dieser Stelle fehl am Platz ist, kommen wir auf den Punkt.
@@ -14,6 +14,6 @@ Im Herzen der Truppe sind die Plätze nummeriert. Fast schon unendlich “die Qu
 
 So blieben für ganz zuvorderst  immerhin 4  „Ausserirdische“ übrig. 2 Flügelflitzer und 2 Mittelstürmer. Die „Quelle“ war so unerschöpflich, dass ich fast schon ein schlechtes Gewissen bekam.  Der „wahre“ Ronaldo und sein „Double“ CR7, Ibrahimovic, Van Basten, Paolo Rossi, Roberto Baggio, Ronaldinho, Alfredo di Stefano, Ferenc Puskas, Samuel Eto, Didier Drogba, Lewandowski und und und. 
 
-Dribbler sind das Salz in der Suppe. Wer die WM 58 und 62 mitentschieden hat wie Garrincha, darf ohne Passkontrolle in den Olymp. Mit dem besten Torriecher aller Zeiten ausgestattet, so steht’s in seinem Arbeitszeugnis. Gerd Müller‘s Siegestor gegen die Niederlande im WM-Finale 1974 verkörpert alles was diesen Ausnahmestürmer ausgezeichnet hat. Neben ihm der „King“❗️Für mich der Grösste aller Zeiten. Edson Arantes do Nascimento, kurz Pelé. Dreimal Weltmeister. Vorbild auf und neben dem Rasen. Ohne irgendeinen Verrückten hätte ich meine „Laudatio“ nicht beenden wollen. Der linke Flügel ist prädestiniert dafür. Ein „Enfant Terrible“ wie es im Buche steht. In allen Lebenslagen. Die Damen haben ihn ganz besonders geliebt. George Best❗️
+Dribbler sind das Salz in der Suppe. Wer die WM 58 und 62 mitentschieden hat wie Garrincha, darf ohne Passkontrolle in den Olymp. Mit dem besten Torriecher aller Zeiten ausgestattet, so steht’s in seinem Arbeitszeugnis. Gerd Müller‘s Siegestor gegen die Niederlande im WM-Finale 1974 verkörpert alles was diesen Ausnahmestürmer ausgezeichnet hat. Neben ihm der „King“❗️Für mich der Grösste aller Zeiten. Edson Arantes do Nascimento, kurz Pelé. Dreimal Weltmeister. Vorbild auf und neben dem Rasen. Ohne irgendeinen Verrückten hätte ich meine „Laudatio“ nicht beenden wollen. Der linke Flügel ist prädestiniert dafür. Ein „Enfant Terrible“ in allen Lebenslage, wie es im Buche steht. Die Damen haben ihn ganz besonders geliebt. George Best❗️
 
-1 Russe, 1 Holländer, 1nNordire, 2 Italiener, 2 Deutsche, 2 Argentinier und 3 Brasilianer. Auch Salomon, Hüter der Gerechtigkeit, ist mit meinem Urteil zufrieden 🙈❗️
+Ein Russe, ein Holländer, ein Nordire, zwei Italiener, zwei Deutsche, zwei Argentinier und zwei Brasilianer. Auch Salomon, Hüter der Gerechtigkeit, ist mit meinem Urteil zufrieden 🙈❗️

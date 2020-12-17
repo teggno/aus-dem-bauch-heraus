@@ -1,6 +1,6 @@
 ---
 title: Time to say Goodbye
-draft: true
+draft: false
 date: 2020-12-17T08:08:26.683Z
 image: img/a4da1dff-6568-4932-b642-fa98b3824a6f.jpeg
 ---

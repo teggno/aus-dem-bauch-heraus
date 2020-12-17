@@ -1,5 +1,5 @@
 ---
-title: O
+title: "Kunstobjekte "
 draft: true
 date: 2020-12-17T13:03:17.887Z
 image: img/33c73c2b-e884-4323-8426-2d34d5dc61de.jpeg

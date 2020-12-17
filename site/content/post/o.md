@@ -4,7 +4,7 @@ draft: true
 date: 2020-12-17T13:03:17.887Z
 image: img/33c73c2b-e884-4323-8426-2d34d5dc61de.jpeg
 ---
-Bowie, der seiner Zeit stets voraus war, wollte schon damals den Mantel des Schweigens über das brisante Thema breiten. Eines Tages, so seine Überzeugung, würden die ungeschliffenen Diamanten und ihre „Väter“ bei Sotheby‘s unter den Hammer kommen. So wie die Picasso’s und van Gogh‘s! Mit ein paar Miilionen auf der hohen Kante, wäre es dann Jedermann möglich zuzulangen. Einen „Messi zuhause zu haben“, liesse die Herzen der Liebhaber seltener Kunstobjekte höher schlagen.
+Bowie, der seiner Zeit stets voraus war, wollte schon damals den Mantel des Schweigens über das brisante Thema breiten. Eines Tages, so seine Überzeugung, würden die ungeschliffenen Diamanten und ihre „Väter“ bei Sotheby‘s unter den Hammer kommen. So wie die Picasso’s und van Gogh‘s! Mit ein paar Miilionen auf der hohen Kante,wäre es dann Jedermann möglich zuzulangen. Einen „Messi zuhause zu haben“, liesse die Herzen der Liebhaber seltener Kunstobjekte höher schlagen.
 
 Soweit sind wir noch nicht. Bis dahin werden die Phantasie-Preise unter den Vereinen ausgehandelt. Ich gebe dir Pjanic für 70 Mio.,du gibst mir Arthur für 80 Mio. Unter dem Strich mache ich Juve zwar 10 Mio „miese“, dafür stehen in der Bilanz 60 Mio. auf der Habenseite, weil der Bosnier bilanztechnisch fast schon abgeschrieben war. So wursteln sich die Vereine durch die Pandemie. Verübeln kann es ihnen niemand, denn die Gelder aus den Fernsehrechten sind schon wieder verhökert und die Spielergehälter, die einfach nicht sinken wollen, sind immer noch nicht ausbezahlt.
 

@@ -8,4 +8,4 @@ Yesterday when I was young 🤭 🙈 🤫. Da soll mir noch einer erzählen, heu
 
 Tanzkurse musstest du damals nicht belegt haben. Hauptsache du wusstest, wie man sich auf einem „Bierdeckel“ im Kreis bewegt. Wer bei den „Slows“ nicht an vorderster „Front“ war, konnte den Abend fast schon abhaken. Wenn deine Zeit dann langsam abzulaufen drohte, weil zuhause sonst ein Donnerwetter wartete und du nicht mindestens einen Zungenkuss ergattert hattest, warst du den 🥲 ganz nah.
 
-Genau wie heute. Grund sind nicht die verpassten Gelegenheite, sondern unsere neue „Begleitung“. Unsichtbar
+Genau wie heute. Grund sind nicht die verpassten Gelegenheiten, sondern unsere neue „Begleitung“, die uns in unseren vier Wänden gefangen hält.

@@ -1,5 +1,5 @@
 ---
-title: In der Bredouille?
+title: In der Bredouille...?
 draft: false
 date: 2020-12-21T08:26:55.860Z
 image: img/b3c6fc84-4122-4599-99c4-469acdef0070.jpeg

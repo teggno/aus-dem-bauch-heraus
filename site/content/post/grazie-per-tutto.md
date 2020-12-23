@@ -1,8 +1,9 @@
 ---
-title: "Aus der Traum 😴 "
+title: Bananenrepublik
 draft: true
-date: 2020-12-22T22:39:56.670Z
+date: 2020-12-23T06:41:40.589Z
+image: img/4fa1ecbe-a684-4ed6-a34a-02b3571be23d.jpeg
 ---
-Das Ende einer Ära❗️Ein Unglück kommt selten allein. Italien, eine „Bananenrepublik“. Das sind die Schlagzeilen vom 22. Dezember 2020, als sich Juve offiziell aus dem Meisterschaftsrennen verabschiedet. Die Konkurrenz atmet auf. Endlich ist die „One-Man-Show“ vorüber. Am frühen Abend der Entscheid des „Obersten Gerichts“, der die beiden Urteile zweier vorhergehender Instanzen kurzerhand umstösst und Juve die gegen Napoli zurecht gewonnenen Punkte aberkennt, und später der unerklärliche Auftritt gegen die Fiorentina.
+Halb Italien liegt sich in den Armen. Trotz Corona. Auf dieses Weihnachtsgeschenk haben sie jahrelang vergeblich gewartet. Jetzt liegt es unter dem Baum. Alle Ant-Juventin, angefangen bei den Interisti übet die  Milanisti bis hin zu den Napoletani feiern das Ende einer Ära. der ungeliebte Alleinherrscher ist endgültig vom Sockel gestossen worden. Der 22. Dezember 2020 
 
 Allegris Rauswurf, Marottas Abservierung, Paraticis Beförderung, verfehlte Personalpolitik, der Grössenwahn mit Ronaldo und das Sattsein nach neun aufeinanderfolgenden Meistertiteln, Gründe findet man zuhauf. Oberstes Gebot der Stunde: Schluss mit zweitklassigen „Handlangern“. Fertig mit den Senatoren, Bonucci und Chiellini. Alles ist irgendwann mal vorbei

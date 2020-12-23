@@ -4,7 +4,7 @@ draft: false
 date: 2020-12-23T06:41:40.589Z
 image: img/298854dc-ec8d-48be-af33-6cabfac265bc.jpeg
 ---
-Halb Italien liegt sich in den Armen. Trotz Corona. Auf dieses Weihnachtsgeschenk haben sie jahrelang vergeblich gewartet. Jetzt liegt es unter dem Baum. Alle „Anti-Juventini“, angefangen bei den „Interisti“ über die „Milanisti“ bis hin zu den „sympathischen Napoletani“, feiern überschwänglich das Ende einer Ära. Der verhasste „Imperator“ ist endgültig vom Thron gestossen worden. Nach neunjähriger Alleinherrschaft ist die „Unterdrückung“ vorbei. 
+Halb Italien liegt sich in den Armen. Trotz Corona. Auf dieses Weihnachtsgeschenk haben sie jahrelang vergeblich gewartet. Jetzt liegt es unter dem Baum. Alle „Anti-Juventini“, angefangen bei den „Interisti“ über die „Milanisti“ bis hin zu den „Napoletani“, feiern überschwänglich das Ende einer Ära. Der verhasste „Imperator“ ist endgültig vom Thron gestossen worden. Nach neunjähriger Alleinherrschaft ist die „Unterdrückung“ vorbei. 
 
 Interessanterweise kam der Gnadenstoss von ganz oben. Was soll man von einem System halten, das zwei Urteile von höchsten Instanzen einfach von jetzt auf nachher über den Haufen wirft, nur um die Kirche im Dorf zu belassen. Wenn Regeln ausser Kraft gesetzt werden, nur um „Jemandem“ einen Gefallen zu tun, dann hat der Sport gegen die Politik kapituliert. Schade, dass Juventus Turin nur mit Gleichgültigkeit reagiert. Hier wäre die Anwendung des „Alten Testaments“ die einzig richtige Antwort gewesen. \
 \

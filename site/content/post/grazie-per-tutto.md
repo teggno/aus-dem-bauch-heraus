@@ -2,7 +2,7 @@
 title: Bananenrepublik
 draft: true
 date: 2020-12-23T06:41:40.589Z
-image: img/4fa1ecbe-a684-4ed6-a34a-02b3571be23d.jpeg
+image: img/298854dc-ec8d-48be-af33-6cabfac265bc.jpeg
 ---
 Halb Italien liegt sich in den Armen. Trotz Corona. Auf dieses Weihnachtsgeschenk haben sie jahrelang vergeblich gewartet. Jetzt liegt es unter dem Baum. Alle „Anti-Juventini“, angefangen bei den „Interisti“ über die „Milanisti“ bis hin zu den „sympathischen Napoletani“ feiern überschwänglich das Ende einer Ära. Der ungeliebte König ist endgültig vom Thron gestossen worden. Nach neunjähriger Alleinherrschaft ist die „Unterdrückung“ vorbei. 
 

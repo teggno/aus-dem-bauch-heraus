@@ -4,7 +4,7 @@ draft: false
 date: 2020-12-25T11:11:56.164Z
 image: img/d0dbf93d-9dfe-4aef-8254-4a1d201688b3.jpeg
 ---
-WM 1978 in Argentinien! Italien spielt den besten Fussball, den ich von der „Squadra Azzurra“ je gesehen habe. Leichtfüssig schweben „Bearzots Jungspunde“ über den Rasen. Die meisten stammen aus der Talentschmiede von Juventus Turin. Er nicht. Mauro Bellug, der „alte Haudegen“ auf der Vorstopper-Position  verdient seine Brötchen bei Inter Mailand. 
+WM 1978 in Argentinien! Italien spielt den besten Fussball, den ich von der „Squadra Azzurra“ je gesehen habe. Leichtfüssig schweben „Bearzots Jungspunde“ über den Rasen. Die meisten stammen aus der Talentschmiede von Juventus Turin. Er nicht. Mauro Bellugi, der „alte Haudegen“ auf der Vorstopper-Position  verdient seine Brötchen bei Inter Mailand. 
 
 Lange hatte man nichts mehr von ihm gehört. Auf dem TV-Sender „7 Gold“ gab er als kritischer Fussballexperte hin und wieder seine „Statements“ zum Besten. Das Herz stets auf der Zunge, spontan, lustig, kompetent und geradeaus. Obwohl er die Farben meiner Erzfeinde vergötterte, habe ich ihm gerne zugehört. Vor zwei Monaten ist er plötzlich von der Bildfläche verschwunden. 
 

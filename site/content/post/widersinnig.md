@@ -1,5 +1,5 @@
 ---
-title: "Sinnlose Finessen "
+title: Sinnlose „Finessen“
 draft: true
 date: 2020-12-24T09:59:28.135Z
 image: img/d0dbf93d-9dfe-4aef-8254-4a1d201688b3.jpeg

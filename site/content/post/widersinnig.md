@@ -1,6 +1,6 @@
 ---
 title: "Sinnlose Feinheiten "
-draft: true
+draft: false
 date: 2020-12-25T11:11:56.164Z
 image: img/d0dbf93d-9dfe-4aef-8254-4a1d201688b3.jpeg
 ---

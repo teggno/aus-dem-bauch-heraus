@@ -2,7 +2,7 @@
 title: Mit oder an....
 draft: true
 date: 2020-12-24T09:59:28.135Z
-image: img/e5753a2c-3f20-4b04-b243-1c07d538c330.jpeg
+image: ""
 ---
 WM 1978 in Argentinien! Italien spielt den besten Fussball, den ich von der Squadra Azzurra je gesehen habe. Leichtfüssig schweben Bearzots Jünger übers Feld. Die meisten kommen aus Juve’s Talentschmiede. Er nicht. Vorstopper Mauro Bellugi. Der alte Haudegen verdient seine Brötchen bei Inter Mailand. 
 

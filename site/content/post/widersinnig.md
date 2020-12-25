@@ -1,5 +1,5 @@
 ---
-title: Sinnlose „Finessen“
+title: "Sinnlose Feinheiten "
 draft: true
 date: 2020-12-24T09:59:28.135Z
 image: img/d0dbf93d-9dfe-4aef-8254-4a1d201688b3.jpeg
@@ -10,4 +10,4 @@ Lange hat man nichts mehr von ihm gehört. Ich sah ihn jede Woche zweimal auf de
 
 Als ich die Schreckensmeldung „Mauro Bellugi wurden beide Beine wegen Corona amputiert“, vernahm, lief es mir kalt über den Rücken. Bellugi hat sich mit seinem unerschütterlichen Optimismus gleich Mut gemacht: „Ich werde mir die besten Prothesen zulegen, die es gibt“. Andere hätten in dieser schrecklichen Situation bestimmt an Selbstmord gedacht.
 
-Es ist die Zeit, wo wir alle einen riesigen Karrieresprung hingelegt haben. Auf eimall sind wir alle Ärzte und Virologen. Jeder masst sich ein Urteil zu. Die Bundesräte sind „Idioten“, die Wissenschaftler haben keine Ahnung und die Spitäler sind doch nicht wegen Covid voll.  Bellugiis Schicksal würde nur am Rande etwas mit Corona zu tun haben, bestimmt hatte er Zucker oder sonst eine schwere Krankheit. Dass es „nur“ Corona  sein könnte, will vielen nicht in den Schädel rein. Erst wenn sie selber betroffen sind oder einer ihrer Liebsten, beginnt es ihnen im Oberstübchen zu dämmern. Mauro Bellugi war vorher gesund. Er hat das Pech gehabt, angesteckt zu werden. Wenn er die Amputation abgelehnt hätte, wäre er laut seinen Ärzten gestorben.
+Wir Leben in eine, wo viele von uns von heute auf morgen einen riesigen Karrieresprung hingelegt haben. Auf eimall sind wir über Nacht Ärzte und Virologen  geworden. Jeder masst sich ein Urteil zu. Die Bundesräte sind „Idioten“, die Wissenschaftler haben keine Ahnung und die Spitäler sind doch nicht wegen Covid voll.  Bellugis Schicksal würde nur am Rande etwas mit Corona zu tun haben, bestimmt hatte er Zucker oder sonst eine schwere Krankheit. Dass es „nur“ Corona  sein könnte, will vielen nicht in den Schädel rein. Erst wenn sie das „Elend“ am eigenen Leib spüren oder einer ihrer Liebsten damit betroffen ist, beginnt es ihnen im Oberstübchen zu dämmern. Mauro Bellugi war vorher gesund. Er hat das Pech gehabt, angesteckt zu werden. Wenn er die Amputation abgelehnt hätte, wäre er laut seinen Ärzten gestorben.

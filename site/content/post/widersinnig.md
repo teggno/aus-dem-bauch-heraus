@@ -6,7 +6,7 @@ image: img/d0dbf93d-9dfe-4aef-8254-4a1d201688b3.jpeg
 ---
 WM 1978 in Argentinien! Solch herzerfrischenden Fussball hat die „Squadra Azzurra“ noch nie gespielt. Leichtfüssig schweben „Bearzots Jungspunde“ über den Rasen. Die meisten stammen aus der Talentschmiede von Juventus Turin. Er nicht. Mauro Bellugi, der „alte Haudegen“ auf der Vorstopper-Position  verdient seine Brötchen bei Inter Mailand. 
 
-Lange hatte man nichts mehr von ihm gehört. Auf dem TV-Sender „7 Gold“ gab er als kritischer Fussballexperte hin und wieder seine „Statements“ zum Besten. Das Herz stets auf der Zunge. Spontan, sympathisch, kompetent und geradeaus. Obwohl er die Farben meiner Erzfeinde vergötterte, habe ich ihm gerne zugehört. Vor zwei Monaten ist er plötzlich von der Bildfläche verschwunden. 
+Lange hatte man nichts mehr von ihm gehört. Auf dem TV-Sender „7 Gold“ gab er als kritischer Fussballexperte hin und wieder seine „Statements“ zum Besten. Das Herz stets auf der Zunge. Spontan, sympathisch, kompetent und geradeaus. Obwohl er die Farben meiner Erzfeinde vertrat, habe ich ihm gerne zugehört. Vor zwei Monaten ist er plötzlich von der Bildfläche verschwunden. 
 
 Als ich die Schreckensmeldung vernahm, dass Mauro Bellugi wegen Corona beide Beine amputiert werden mussten, lief es mir kalt über den Rücken. Er hat sich mit seinem unerschütterlichen Optimismus gleich Mut gemacht: „Ich werde mir die besten Prothesen zulegen, die es gibt“. Andere hätten in dieser  Situation an “Exit“ gedacht.
 

@@ -8,4 +8,4 @@ Wenn in seinem „Curriculum Vitae“ nicht die Bezeichnung „Fussballstar“ a
 
 Bereits nach wenigen Auftritten wurde auch Italiens „Commissario Tecnico“ auf den Jungen aufmerksam. Nach einer nächtlichen Eskapade mit seinem „Stammesgenossen“ Moise Kane war die azurblaue Beziehung gleich wieder beendet. Kurz darauf riss er sich bei einem seiner unvergleichlichen Sturmläufe das Kreuzband im Knie und nach mehrmonatiger Genesungszeit ereilte ih dasselbe Schicksal noch einmal.
 
-Wer wollte es ihm verübeln, die endlosen Stunden mit anderweitigen  Beschäftigungen totzuschlagen.
+Wer wollte es ihm verübeln, dass er die endlosen Stunden mit anderweitigen  Beschäftigungen „totschlagen“ wollte. Dafür verliess er als erstes den Schoss der Familie um sich bei Übervater Totti ein schickes Appartement seinem Übervater Facebook, Twitter und Instagram stürzten sich förmlich auf seine amourösen Abenteuer. In der Zwischenzeit hatte er bei seinem „Übervater“ Totti eine schicke Wohnung gemietet.

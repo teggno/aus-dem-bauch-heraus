@@ -1,6 +1,6 @@
 ---
 title: Endstation Mailand
-draft: false
+draft: true
 date: 2021-01-04T08:26:49.871Z
 image: img/caef4ee4-7d80-4c86-a18b-011820c93f2f.webp
 ---
@@ -10,4 +10,4 @@ Wie alle „Niedergänge“ hat sich auch dieser abgezeichnet. Die Umkehrformati
 
 Einen Moment lang, es war ein Donnerstagabend im August 2019, hätte man das Rad noch einmal zurückdrehen können. Doch Sportdirektor Paratici vermasselte seine Mission. Lukaku rein - Dybala raus❗️Nicht rot oder schwarz wie im Casino, sondern das realistische Abwägen des zukünftigen Potentials. 18 Monate später liegen die Fakten auf dem Tisch. Erzfeind Inter, der sich das Juvel  nicht durch die Lappen gehen liess, hat seinen Höhenflug in erster Linie Romelu Lukaku zu verdanken und Dybala ist das geblieben, was er von Anfang an war: „Ein ewiges Talent“ geboren für den Zirkus.
 
-Trotz allem, Fahnenflucht ist nicht unser Ding. Durch dick und dünn, in guten wie in schlechten Zeiten. Wir lassen dich nicht im Stich „Vecchia Signora“. Auch wenn in Mailand der Siegeszug endgültig ins Stocken gerät. Forza Juve per sempre❗️
+Trotz allem, Fahnenflucht ist nicht unser Ding. Durch dick und dünn, in guten wie in schlechten Zeiten. Wir lassen dich nicht im Stich „Vecchia Signora“. Auch wenn in Mailand der Siegeszug endgültig ins Stocken ger

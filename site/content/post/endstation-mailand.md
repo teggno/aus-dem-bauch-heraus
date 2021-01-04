@@ -4,7 +4,7 @@ draft: false
 date: 2021-01-04T08:26:49.871Z
 image: img/caef4ee4-7d80-4c86-a18b-011820c93f2f.webp
 ---
-Übermorgen Mittwoch geht eine Ära zu Ende. Das hat nichts mit Pessimismus oder Schwarzmalerei zu tun. Es ist der Lauf der Dinge. Alles geht irgendwann einmal vorbei. Auch die tollsten Siegesserien. Wir „Juventini“ sind ein beneidenswertes Volk. Neun Jahre lang durften wir die Karawane anführen. Unsere Konkurrenz ist schier verzweifelt. 
+Übermorgen Mittwoch geht eine Ära zu Ende. Das hat nichts mit Pessimismus oder Schwarzmalerei zu tun. Es ist der Lauf der Dinge. Alles ist irgendwann einmal vorbei. Auch die tollsten Siegesserien. Wir „Juventini“ sind ein beneidenswertes Volk. Neun Jahre lang durften wir die Karawane anführen. Unsere Konkurrenz ist schier verzweifelt. 
 
 Wie alle „Niedergänge“ hat sich auch dieser abgezeichnet. Die Umkehrformation auf dem Chartbild ist sogar für die „Laien“ zu eruieren. So schizophren es klingen mag, Ronaldos Verpflichtung war der Anfang vom Ende. Lasten, die bis dorthin auf verschiedene Schultern verteilt waren, stemmte fortan nur einer. Die anderen stahlen sich sozusagen aus der Verantwortung. Mit dem Gedanken „der dort vorne wird es schon richten“, haben sie ihre persönliche Entwicklung verschlafen. Die Beispiele wurden an dieser Stelle schon oft genannt. 
 

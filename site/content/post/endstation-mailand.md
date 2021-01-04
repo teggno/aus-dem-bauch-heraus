@@ -1,6 +1,6 @@
 ---
 title: Endstation Mailand
-draft: true
+draft: false
 date: 2021-01-04T08:26:49.871Z
 image: img/caef4ee4-7d80-4c86-a18b-011820c93f2f.webp
 ---

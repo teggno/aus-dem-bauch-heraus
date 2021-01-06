@@ -8,4 +8,4 @@ image: img/2af9351d-5fe8-498f-9256-9ce82a75457a.jpeg
 
 
 
-„Ausdembauchheraus“  möchte sich für die vielen „Klicks“ recht herzlich bedanken. Vielleicht hören wir uns irgendwann auf einem anderen Kanal wieder.
+„Ausdembauchheraus“  möchte sich bei den Leserinnen und Lesern für die vielen „Klicks“ recht herzlich bedanken. Vielleicht begegnen wir uns irgendwann auf einem anderen Kanal wieder.

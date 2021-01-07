@@ -6,4 +6,4 @@ image: img/2af9351d-5fe8-498f-9256-9ce82a75457a.jpeg
 ---
 Nach zahlreichen verbalen „Faustschlägen“ 👊 auf Facebook, Twitter und Instagram war der Schreiberling gezwungen, die Verbindung über Nacht zu kappen 😶. Aus dem „militanten“ Juve-Block wurde dermassen „scharf geschossen“ 🤕, dass es unmöglich war, die Gedanken zu sortieren.
 
-Nun sind wir alle wieder „nüchtern“.
+Nun sind wir alle wieder „nüchtern“ und freuen uns gemeinsam über diesen „historischen“ Sieg, der uns erlaubt, weiterhin zu träumen. Wir waren gestern nicht die bessere Mannschaft, doch wir hatten in unseren Reihen einen „Chiesa“, der endlich einmal gezeigt hat, warum man für ihn diesen astronomischen Betrag nach Florenz überwiesen hat

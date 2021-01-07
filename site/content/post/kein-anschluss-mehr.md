@@ -4,7 +4,7 @@ draft: false
 date: 2021-01-07T08:53:28.023Z
 image: img/2af9351d-5fe8-498f-9256-9ce82a75457a.jpeg
 ---
-Nach zahlreichen verbalen „Faustschlägen“ 👊, die in den sozialen Medien keine Seltenheit mehr sind,, war der Schreiberling gezwungen, die Verbindung über Nacht zu kappen 😶. Aus dem „militanten“ Juve-Block wurde dermassen „scharf geschossen“ 🤕, dass es unmöglich war, die Gedanken zu sortieren.
+Nach zahlreichen verbalen „Faustschlägen“ 👊, die in den sozialen Medien keine Seltenheit mehr sind,, sah sich der Schreiberling gezwungen, die Verbindung über Nacht zu kappen 😶. Aus dem „militanten“ Juve-Block wurde dermassen „scharf geschossen“ 🤕, dass es unmöglich war, die Gedanken zu sortieren.
 
 Nun sind wir alle wieder „nüchtern“ und freuen uns gemeinsam über diesen „historischen“ Sieg, der uns erlaubt, weiterhin zu träumen. Wir waren gestern nicht die bessere Mannschaft, doch wir hatten einen „Chiesa“ in unseren Reihen, der endlich einmal gezeigt hat, warum man für ihn diese astronomische Summe nach Florenz überwiesen hat. Dribbling, Schuss, Tor, zweimal hintereinander❗️Mit seinen Einzelaktionen hat er manche Ungereimtheit vergessen lassen.
 

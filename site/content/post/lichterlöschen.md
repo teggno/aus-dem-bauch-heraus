@@ -4,7 +4,7 @@ draft: false
 date: 2021-01-09T10:24:51.030Z
 image: img/bf368e6c-c95c-484c-8150-adf7532e93e9.jpeg
 ---
-Rimini 1953❗️Die „Desperados“ auf der Suche nach dem letzten Vergnügen. Wie immer sind die Männer  in solchen diffizilen „Angelegenheiten“ unter sich. Ob der grosse Visionär Fellini geahnt haben mag, dass seinen Müssiggängern auch im Jahre 2021 nichts ausser Wunschdenken bleibt❓Udo hätte bestimmt den passenden Soundtrack dazu geschrieben: „Illusionen hast du dir gemacht, doch dein Feind das Virus hat dich ausgelacht.“
+Rimini 1953❗️Die „Desperados“ auf der Suche nach dem letzten Vergnügen. Wie immer sind die Männer  in solch diffizilen „Angelegenheiten“ unter sich. Ob der grosse Visionär Fellini geahnt haben mag, dass seinen Müssiggängern auch im Jahre 2021 nichts ausser Wunschdenken bleibt❓Udo hätte bestimmt den passenden Soundtrack dazu geschrieben: „Illusionen hast du dir gemacht, doch dein Feind das Virus hat dich ausgelacht.“
 
 Wie lange noch soll das so weitergehen? Desillusionierte Pensionäre haben den „Lac de Constance“ aus lauter Perspektivlosigkeit schon zigmal umrundet. Jede einsame Bucht hat sich in ihr Gedächtnis eingeprägt. Gedankenversunken lassen sie ihren Phantasien freien Lauf. Wie machen die Vereine das nur, frage ich mich dann.  Keine Zuschauer, teure Spieler, leere Kassen. Die letzten Mohikaner harren zwar vor der Mattscheibe aus und ziehen sich die Klassiker rein, aber wie lange noch. Gladbach-Bayern, in Normalzeiten ein Hingucker, verkommt zum abendlichen Überbrückungsmanöver. Leider holt dich der Schlaf schon vorher ein. Von 0:2 auf 3:2❗️Ist das den Münchnern wirklich passiert❓
 

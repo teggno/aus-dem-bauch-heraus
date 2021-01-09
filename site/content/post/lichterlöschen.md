@@ -8,4 +8,4 @@ Rimini 1953❗️Die „Desperados“ auf der Suche nach dem letzten Vergnügen.
 
 Wie lange noch soll das so weitergehen. Wir Pensionäre, (was für ein unpassender  Begriff) haben den „Lac de Constance“ aus lauter Langeweile schon zigmal umrundet. Jede einsame Bucht hat sich in unser Gedächtnis eingeprägt. Gedankenversunken lassen wir unseren Phanasie freien Lauf.
 
-Wie machen die Vereine das nur, frage ich mich dann in einer ruhigen Minute. Leere Ränge, teure Spieler,
+Wie machen die Vereine das nur, frage ich mich dann in einer ruhigen Minute. Keine Zuschauer, teure Spieler, leere Kassen. Die letzten Mohikaner harren vor der Mattscheibe aus und ziehen sich die Klassiker rein. Gladbach gegen die Bayern zum Beispiel.

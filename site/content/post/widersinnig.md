@@ -2,7 +2,7 @@
 title: "Sinnlose Feinheiten "
 draft: false
 date: 2020-12-25T11:11:56.164Z
-image: img/d0dbf93d-9dfe-4aef-8254-4a1d201688b3.jpeg
+image: ""
 ---
 WM 1978 in Argentinien! Solch herzerfrischenden Fussball hat die „Squadra Azzurra“ noch nie gespielt. Leichtfüssig schweben „Bearzots Jungspunde“ über den Rasen. Die meisten stammen aus der Talentschmiede von Juventus Turin. Er nicht! Mauro Bellugi, der „alte Haudegen“ auf der Vorstopper-Position  verdient seine Brötchen bei Inter Mailand. 
 

@@ -2,7 +2,7 @@
 title: "Frühlingserwachen "
 draft: false
 date: 2020-12-09T15:33:45.093Z
-image: img/aef7788f-e926-44da-80de-a819bdeef291.jpeg
+image: ""
 ---
 Wieviele „Frühlinge“ hat ein Mann❓Wenn ich mir die Höhenflüge von Methusalem „Gigi“ vor Augen führe, müssen es mindestens ein halbes Dutzend sein. Was hatte ich ihm nicht alles ans Herz gelegt, als er langsamer als eine „Bahnschranke“ nach dem Leder greifen wollte. Als er uns den Laufpass gab um in Paris noch einmal nach den Sternen zu greifen, habe ich die Welt nicht mehr verstanden. Nachdem die französische Presse nach dem CL-Aus das Wort „Fliegenfänger“ in den Mund nahm, ist er reumütig in den Schoss der Familie zurückgekehrt.
 

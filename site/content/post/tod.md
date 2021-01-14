@@ -2,7 +2,7 @@
 title: "Spielereien "
 draft: false
 date: 2020-12-16T11:47:55.016Z
-image: img/5f90a66e-a930-486e-a8ee-2d9cc39166d3.jpeg
+image: ""
 ---
 Schwelgereien sind im Trend. Die schreibende Fussball-Zunft übertrifft sich in dieser düsteren Vorweihnachtszeit mit allerlei Lobhudeleien. Eine „Best of“ aller Zeiten genügt scheinbar nicht mehr. Es müssen gleich drei sein. Nicht ganz unverständlich,  gibt es doch so viele Klassefussballer, dass je nach persönlichem Gusto, nicht dieser sondern jener Star in das Team des Jahrhunderts aufrückt. Nachdem wir festgestellt haben, dass Objektivität an dieser Stelle fehl am Platz ist, kommen wir auf den Punkt.
 

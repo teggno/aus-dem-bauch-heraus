@@ -2,7 +2,7 @@
 title: "B-Movie "
 draft: false
 date: 2021-01-09T10:24:51.030Z
-image: img/bf368e6c-c95c-484c-8150-adf7532e93e9.jpeg
+image: ""
 ---
 Rimini 1953❗️Die „Desperados“ auf der Suche nach dem letzten Vergnügen. Wie immer sind die Männer  in solch diffizilen „Angelegenheiten“ unter sich. Ob der grosse Visionär Fellini geahnt haben mag, dass seinen Müssiggängern auch im Jahre 2021 nichts ausser Wunschdenken bleibt❓Udo hätte bestimmt den passenden Soundtrack dazu geschrieben: „Illusionen hast du dir gemacht, doch dein Feind das Virus hat dich ausgelacht.“
 

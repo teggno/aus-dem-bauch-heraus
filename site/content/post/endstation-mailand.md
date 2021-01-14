@@ -2,7 +2,7 @@
 title: Endstation Mailand
 draft: false
 date: 2021-01-04T08:26:49.871Z
-image: img/caef4ee4-7d80-4c86-a18b-011820c93f2f.webp
+image: ""
 ---
 Übermorgen Mittwoch geht eine Ära zu Ende. Das hat nichts mit Pessimismus oder Schwarzmalerei zu tun. Es ist der Lauf der Dinge. Alles ist irgendwann einmal vorbei. Auch die tollsten Siegesserien. Wir „Juventini“ sind ein beneidenswertes Volk. Neun Jahre lang durften wir die Karawane anführen. Unsere Konkurrenz ist schier verzweifelt. 
 

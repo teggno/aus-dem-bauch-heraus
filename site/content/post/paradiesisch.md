@@ -2,7 +2,7 @@
 title: Paradiesisch
 draft: false
 date: 2020-11-28T08:14:43.140Z
-image: img/3d92df95-3faf-4260-b4c8-ec3b66575f29.jpeg
+image: ""
 ---
 „Auf Wiedersehen im Himmel mein Freund, irgendwann spielen wir dort oben unsere Gegner schwindlig.“ Pelé‘s Abschiedsgruss an Maradona  hat etwas Beruhigendes. Die Aussicht auf ein Leben nach dem Tod ist Balsam für meine Seele. Mittlerweile hat sich im Garten Eden eine Ansammlung ausserirdischer Fussballkunst eingefunden, die es mit der Irdischen jederzeit aufnehmen kann. Während einer Gedenkminute wollen wir ihren Einfallsreichtum würdigen.
 

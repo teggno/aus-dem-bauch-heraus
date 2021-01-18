@@ -2,7 +2,7 @@
 title: Grazie Paolo
 draft: false
 date: 2020-12-10T07:23:05.316Z
-image: ""
+image: img/5d3842d2-253d-4833-ac56-556ba5bb0ad8.jpeg
 players:
   goalie: ""
 ---

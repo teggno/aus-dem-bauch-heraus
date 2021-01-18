@@ -2,7 +2,7 @@
 title: Time to say Goodbye
 draft: false
 date: 2020-12-17T08:08:26.683Z
-image: img/9b7135c5-42c4-40ae-9aa9-776dee1a39c6.jpeg
+image: img/5b054df2-5c6a-4fba-9ad2-74b5ef1f3fc7.jpeg
 ---
 Wer sich sein Hobby so fürstlich entlöhnen lässt, darf keinen Elfer verschiessen. Die Massstäbe werden in solchen Fällen viel viel höher angesetzt. 90 Minuten lang ist er gestern wie ein falsch eingestellter „Roboter“ übers Feld stolziert. Diese unsinnigen Übersteiger, die höchstens noch ein 10-jähriges Kind überraschen können, gehören in die Mottenkiste. Seine Verblüffung, wenn er das Tor nicht trifft, ist nur noch nervig. An solchen Tagen nimmt ihm jeder zweitklassige Verteidiger die Kugel ab. Kommt hinzu, dass seine Mitspieler (Morata) aus Angst „Ihre Majestät“ zu beleidigen, ihm aus aussichtsreichsten Positionen den Ball rüberschieben.
 

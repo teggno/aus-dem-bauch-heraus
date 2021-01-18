@@ -2,7 +2,7 @@
 title: Time to say Goodbye
 draft: false
 date: 2020-12-17T08:08:26.683Z
-image: ""
+image: img/a4da1dff-6568-4932-b642-fa98b3824a6f.jpeg
 ---
 Warum wird diese Pose nicht mindestens mit 2 Spielsperren belegt? „Kommt her zu mir meine Untertanen und seht wie toll ich bin.“ Dieser viel beklatschte Egoismus muss irgendwann mal aufhören. Seitdem er bei uns ist, juble ich mit angezogener Handbremse. Das liegt an seiner Art. Ihm Sympathie entgegenzubringen fällt mir ausserordentlich schwer. Wenn er dann wie gestern einen Elfer vergeigt, wird unsere Beziehung erst recht auf die Probe gestellt.
 

@@ -2,7 +2,7 @@
 title: Männer-Bastionen
 draft: false
 date: 2020-11-24T08:08:22.818Z
-image: ""
+image: img/0a0dce0f-a6a9-4d0c-9462-891d0de0615b.jpeg
 ---
 Champagner kaltgestellt, Antipasti-Teller angerichtet, die Kuschelrock-CD aufgelegt, das Kerzenlicht angezündet und sonst alle nötigen Vorkehrungen getroffen. Soviel Mühe hat ER sich schon lange nicht mehr gegeben. SIE wird ihm im schlechtesten Fall um den Hals fallen, wenn er die Türe aufmacht.....aber lassen wir das. Je mehr es auf 9 zugeht, desto flauer wird das Gefühl in seinem Magen. Der „Stargast“ des Abends wird doch nicht etwa mit Abwesenheit glänzen.
 

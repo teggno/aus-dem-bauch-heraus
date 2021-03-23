@@ -2,7 +2,7 @@
 title: Auguri Roberto 🥂
 draft: false
 date: 2020-12-27T04:59:43.848Z
-image: img/c2f540a4-4dc0-4a1c-8947-028edd3ddbbe.jpeg
+image: ""
 ---
 Wenn er dieses Tor geschossen hätte, (der Sepp hatte das Thema schon abgehakt) wäre Italien 1978 Weltmeister geworden❗️Eine kühne Behauptung ich weiss, doch bei Idolen fängt man gleich an zu fabulieren. Stattdessen hat er im Duett mit Paolo Rossi ein Tor „fabriziert“, das die ganze WM auf den Kopf gestellt hat. Argentiniens damaliger Trainer Menotti ist ihm heute noch dankbar. Roberto Bettega und die Wörtchen  „wäre+wenn“! Heute zu seinem 70. Geburtstag widmet ihm die „Gazzetta dello Sport“ eine ganz besondere Überschrift, die ich mit einer gewissen Genugtuung zur Kenntnis genommen habe: „70 Jahre Bettega - warum er ohne Verletzungen der grösste Spieler Italiens gewesen wäre“.
 

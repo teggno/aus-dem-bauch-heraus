@@ -2,7 +2,7 @@
 title: Horror-Visionen
 draft: false
 date: 2020-12-04T09:16:50.567Z
-image: img/8f6ef08f-a0f3-44d0-807c-844b1ef94e1a.jpeg
+image: ""
 ---
 Das Leben plätschert dahin. 2020 geht als das Jahr des Verzichts in die Annalen ein. Gespannt warten wir auf ein Highlight, das möglicherweise nie mehr kommen wird. Konzerte und Fussballspiele mit Zuschauern, der Urlaub in den Bergen und am Strand, die Kreuzfahrt auf der Donau, das Wellness im Südtirol, der Flug übers Wochenende nach London, die gemeinsame Wanderung am Untersee, der neuste Streifen live auf der Kinoleinwand, „Warten auf Godot“  im Theater an der Grenze, die Mitternachtsmesse im Dom, der Tango im verrauchten Tanzcafé, das argentinische Rinderfilet, das nicht mehr nur in unserer Küche brutzelt, die Besserwisserei am Stammtisch, “s‘Plauschmätschli vom Mittwochobig“, „dä Schiäbär mit dä Jasskollegä“, der traditionelle  Jahrmarkt im Oktober, das unbeschwerte Shoppen bei Klatsch und Tratsch mit der Busenfreundin in der Fussgängerzone, der Besuch bei Verwandten, Freunden und Bekannten. Nicht mal das tägliche Einkaufen im Supermarkt ist gesichert. Irgendwann fahren Migros und Coop mit ihren Lastwagen direkt vor die Haustür. Und aus Italien kommt schon die nächste Horror-Nachricht. An Weihnachten ist das Verlassen des unmittelbaren Territoriums untersagt. Die Geschenke-Überbringung von „Tägerwilen nach Kreuzlingen“ ist hiermit gestrichen.
 

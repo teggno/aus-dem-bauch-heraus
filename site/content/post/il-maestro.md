@@ -2,7 +2,7 @@
 title: Il Maestro
 draft: false
 date: 2020-11-22T08:51:25.926Z
-image: img/c39d720c-406b-4a88-9f3b-87d591c2c797.jpeg
+image: ""
 ---
 Man hat ihn oder man hat ihn nicht. „Stil“ kann man nicht lernen, er wird einem sozusagen in die Wiege gelegt. So wie Andrea Pirlo, dem neuen Ideengeber von Juventus Turin. Fussballerisch „flügge“ geworden ist der ehemalige Mittelfeldregisseur bei „Brescia-Calcio“. Seine nächste Station, ein jugendlicher Leichtsinn, den ich ihm mittlerweile verziehen habe, war das Team von Inter Mailand. Richtig glücklich geworden ist er dort nie, erst beim Stadtrivalen A.C. Milan hat er demonstriert, aus welchem Stoff er gemacht ist. An der Seite von Legenden wie Maldini, Nesta, Gattuso, Kaka und Inzaghi gewann er in seiner Zeit bei den „Rossoneri“ zwei Meisterschaften und zwei Champions-League-Titel. Unvergessen bleibt seine „Diplomarbeit“ 2006, als er massgeblich am WM-Titel der „Squadra Azzurra“ beteiligt war. Sein “blinder Pass“ auf den späteren Torschützen Grosso im Halbfinale gegen Deutschland, erzeugt bei den „Tifosi“ heute noch Gänsehaut. 
 

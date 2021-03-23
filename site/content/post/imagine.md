@@ -2,7 +2,7 @@
 title: "Unsterblich "
 draft: false
 date: 2020-12-08T07:37:45.538Z
-image: img/7d190a7d-b809-4956-b9fd-69634aa56e8f.jpeg
+image: ""
 ---
 Stell dir vor, was er noch alles drauf gehabt hätte. Wieviele Lieder aus seinem unerschöpflichen „Fundus“ noch entstanden wären. „Imagine“ war sein Markenzeichen als Solokünstler. All die Welthits mit den „Beatles“ wollen wir heute in Frieden ruhen lassen. Der Platz dafür wäre hier viel zu klein.
 
